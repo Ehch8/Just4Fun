@@ -1,2 +1,2 @@
 # Just4Fun
-i make freaky shi here
+i make freaky stufs 
